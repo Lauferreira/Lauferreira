@@ -1,5 +1,5 @@
--futura nutricionista 
-- grata e abençoada💅
+- grata e abençoada 
+- futura nutricionista 
 - cursando tec.rob
 <!---
 Lauferreira/Lauferreira is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
